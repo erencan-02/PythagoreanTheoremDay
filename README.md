@@ -1,3 +1,3 @@
 #PythagoreanTheoremDay
 
-![alt text](https://imgur.com/a/LhfARkB)
+![alt text](https://i.imgur.com/scp1PUu.jpg)
